@@ -1,1 +1,0 @@
-# 1day_sencorp_updated
